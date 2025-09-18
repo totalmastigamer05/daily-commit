@@ -1,1 +1,1 @@
-again today goinh to college for researcg.
+i cant go college,because of high fever..
